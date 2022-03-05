@@ -8,4 +8,5 @@ Link: https://youtu.be/iMyuZxYjiXw
 ![bf110](https://user-images.githubusercontent.com/100898947/156895779-80f6b33a-1608-4bee-93a8-3fc8d455d95e.jpg)
 
 I am the best tennis player in the world, btw...well, for a 55 year old with a giant beer belly.
+Anyway, here is a picture showing other awesomeness:
 ![20170127_133942](https://user-images.githubusercontent.com/100898947/156895992-ec473ee4-2a3d-49a9-8904-958b90d280b4.jpg)
